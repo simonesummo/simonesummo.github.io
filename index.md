@@ -1,5 +1,6 @@
-Here you can say lots of fun things about your site.
+Ciao 👋
 
-Maybe say a some things about yourself.
+Ho creato questo blog per raccogliere un po' di pensieri che voglio condividere riguardo la mia recente diagnosi di ADHD, le difficoltà affrontate prima, cosa viene dopo, etc.
+Se sarà utile per qualcuno, olre che per me, sarà una vittoria! 🎉
 
-Or maybe what you plan to blog about.
+Buona lettura ☺️
